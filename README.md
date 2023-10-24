@@ -1,1 +1,1 @@
-# snlrsn.github.io
+# simz-gh.github.io
